@@ -9,4 +9,7 @@
 ### CO
 - offsuit A5o is fine. and K2s and Q5s. K8o and Q9o and J9o. strong pairs with shallow SPR spots is good and blocking rejam ranges. 54s and 67s are opens again. no 22-33.
 
+#### BTN
+jam 22-55 with 25bb, it's fine you can also jam some slivers of strong hands and suited aces too and K4-K7ss.
+
 
